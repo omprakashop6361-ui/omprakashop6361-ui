@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm 2025 graduated student<br>I'm looking for building professional carrier<br>I'm currently learning python<br>You can reach me omprakashop6361@gmail.com
+I'm 2025 graduated student<br>I'm looking for building professional carrier<br>I'm currently learning python<br>You can reach me at omprakashop6361@gmail.com
 
 
 ## 🌐 Socials:
